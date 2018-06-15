@@ -1,0 +1,1 @@
+Bir vekil adınıza oy kullanımını yönetir. SuperSonicEx forumunda vekil olarak görev almaya gnüllü kişileri bulabilirsiniz  [SuperSonicExtalk](https://supersonicextalk.org/index.php/board,75.0.html). 
